@@ -1,5 +1,5 @@
-- hey i'm @ChaoticTrexus
-- i code random stuff don't expect a fully functional portal to be made here
+- isn't it enough 
+- they last for the time
 <!---
 hehe
 --->
